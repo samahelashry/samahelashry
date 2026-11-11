@@ -24,4 +24,4 @@ Portfolio: **[samahelashry.github.io](https://samahelashry.github.io)**
 
 ### Get in touch
 
-Open to full-time developer roles and freelance projects. Find me on [LinkedIn](https://www.linkedin.com/in/samah-elashry).
+Open to full-time developer roles and freelance projects. Find me on [LinkedIn](https://www.linkedin.com/in/samah-elashry-700132207).
